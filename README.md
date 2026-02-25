@@ -1,14 +1,23 @@
-## Hi there 👋
+## Hi everyone! 👋
 
-**humengofchina/humengofchina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm Humeng! 🐣 Born in 2002 (Year of the Horse) 🐴, I'm currently a senior undergraduate student at Yellow River Transportation College in Wuzhi County, Jiaozuo City, Henan Province, majoring in Transportation Engineering (Class of 2022).
 
-Here are some ideas to get you started:
+🤣 My dream is to live to 2102! 😂
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+Life is short, enjoy it while you can!
+
+
+
+- 🔭 What I'm currently doing: staying home, playing with my niece, taking the high school physics teacher qualification exam, and preparing for the provincial civil service exam for a township position. In the future, I might look for a job or take the civil service exam.
+
+- 🌱 I'm currently learning web scraping 🕷
+
+- 👯 I'm looking for collaboration opportunities: hoping ambitious young people with projects to mentor me.
+
+- 🤔 I need some help: hoping big bosses in places like Zhengzhou, Hangzhou, and Shanghai will offer me a job.
+
+- 📫 How to contact me: QQ email 286076062@qq.com
+
+- 😄 Hobbies: Business table tennis 🏓, business basketball 🏀, business billiards 🎱, business badminton 🏸, business mahjong 🀄, surfing the internet 🏄‍♂️, listening to music 🎵, tinkering with routers, playing King of Glory Ultimate Awakening Battle 🎮, etc.
+
+- ⚡ Interesting things:
