@@ -20,4 +20,4 @@ Life is short, enjoy it while you can!
 
 - 😄 Hobbies: Business table tennis 🏓, business basketball 🏀, business billiards 🎱, business badminton 🏸, business mahjong 🀄, surfing the internet 🏄‍♂️, listening to music 🎵, tinkering with routers, playing King of Glory Ultimate Awakening Battle 🎮, etc.
 
-- ⚡ Interesting things:
+- ⚡ Interesting things:Isn't it right now?
